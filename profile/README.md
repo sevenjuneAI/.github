@@ -1,2 +1,2 @@
 SEVEN JUNE AI 
-![](sevenjune.png)
+![](https://drive.google.com/file/d/1-d6qpDt6F5TsZykUAlWukBnK-XlnTdR1/view?usp=sharing)
